@@ -13,3 +13,5 @@ Here’s how to add Sticker packs for WhatsApp.
 2. Click on the Download button!
 3. When Sticker packs are downloaded, click Add to Whatsapp
 4. That's it... Now share the Sticker packs and use it.
+
+Bella Ciao..
